@@ -23,6 +23,5 @@ Mariam  Atef Ali- Mohamed Ahmed Abobakr
 النَّجَاحَ لَيْسَ وَلِيدَ الْمُصَادَفَةِ، بَلْ ثَمَرَةَ رُؤْيَةٍ وَاضِحَةٍ، وَتَخْطِيطٍ وَاعٍ، وَعَمَلٍ مُتَوَاصِلٍ، وَإِصْرَارٍ عَلَى تَحْقِيقِ الْأَهْدَافِ.
 الطُّمُوحُ يَرْسُمُ الْحُلْمَ، وَالتَّخْطِيطُ يُحَدِّدُ الطَّرِيقَ، وَإِرَادَةُ تَصْنَعُ الْإِنْجَازَ.
 ابْتِكَارُ تَجَارِبَ تَفَاعُلِيَّةٍ اسْتِثْنَائِيَّةٍ تُثْرِي رِحْلَةَ زُوَّارِ الْمُتْحَفِ، وَتَمْزِجُ بَيْنَ الْمُتْعَةِ وَالْمَعْرِفَةِ وَالاكْتِشَافِ.
-رابط منصة العرض التفاعلية https://gemini.google.com/share/b9b78054c55b?social_preview=true&skid=410e5af2-7089-43fe-934f-d6a20986dd42
-الدريف:https://drive.google.com/drive/folders/1hLpUmULrSajFGi5x_txEQExwQzBGK8gN?usp=sharing
+رابط العرض التقديم للمشروع تفاعلي:https://gemini.google.com/share/3ec3004ea5ddd66b5f7c70c8527cacf8?social_preview=true&skid=c69852b7-bf30-4c63-911e-307897545deb                                                               الدريف:https://drive.google.com/drive/folders/1hLpUmULrSajFGi5x_txEQExwQzBGK8gN?usp=sharing
 .
